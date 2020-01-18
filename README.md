@@ -1,0 +1,2 @@
+# bagli liste ters cevirme
+ 
